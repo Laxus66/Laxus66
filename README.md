@@ -20,3 +20,4 @@ Không cần có quá nhiều những điều đúng sai. Em yêu chiều anh m�
 
 Em không phải người hoàn hảo và đương nhiên, anh cũng thế. Nhưng anh mong rằng mình có thể yêu nhau bằng một cách hoàn hảo nhất, dành những gì tốt đẹp nhất cho nhau, cùng nhau đi qua, vì nhau ở lại.. 
 
+
